@@ -9,4 +9,4 @@
 * P.D. James "*The Private Patient*"
 * Val McDermid "*The Wire in the Blood*"
 
-Определите **настоящее** авторство романа Robert Galbraith "The Cuckoo’s Calling"
+Определите **настоящего** автора романа "*The Cuckoo’s Calling*"
